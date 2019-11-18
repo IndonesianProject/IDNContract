@@ -10,4 +10,4 @@ Have a question? or feedback? you can contact me on:
 <br>
 # Gmail: support@indonesian-project.com
 <br>
-# Telegram: <a href="https://t.me/DeBotz"> DeBotz (CEO)</a>
+# Telegram: https://t.me/Debotz
